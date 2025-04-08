@@ -1,5 +1,6 @@
 Autor: Cristian Julio Farias
 Email: cristian.farias@sanmarino.com.py
+San Lorenzo, Paraguay
 
 L2 Shin Launcher - Launcher
 DISCORD: https://discord.gg/42sf7CZ52n
